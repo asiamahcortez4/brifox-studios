@@ -1,2 +1,2 @@
-# brifox-studios
-Multimedia Assignment
+BRIGHT ASIAMAH CORTEZ - 2425400263
+
